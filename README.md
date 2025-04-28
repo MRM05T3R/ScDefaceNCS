@@ -8,7 +8,7 @@
 
 ### VIEW SCRIPT:
 
-* [VIEW](hhttps://klz.fhi.hk/)
+* [VIEW](https://klz.fhi.hk/) 
 
 ### OWNER / FOUNDER :
 

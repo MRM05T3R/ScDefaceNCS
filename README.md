@@ -8,7 +8,7 @@
 
 ### VIEW SCRIPT:
 
-[VIEW] (https://klz.fhi.hk/)
+* [VIEW](hhttps://klz.fhi.hk/)
 
 ### OWNER / FOUNDER :
 
@@ -26,9 +26,9 @@
 
 ## SOSMED : 
 
-* [OFFCNCS] (https://www.tiktok.com/@offcncs)
-* [OFFCNCS01] (https://www.tiktok.com/@offcncs01)
-* [OFFCNCS INSTAGRAM] (https://www.instagram.com/offcncs) 
+* [OFFCNCS](https://www.tiktok.com/@offcncs)
+* [OFFCNCS01](https://www.tiktok.com/@offcncs01)
+* [OFFCNCS INSTAGRAM](https://www.instagram.com/offcncs) 
 
 ## BROTHER TEAM :
 * DORAEMON CYBER TEAM
